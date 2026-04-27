@@ -1,0 +1,1 @@
+# analyza_casovych_pasiem
